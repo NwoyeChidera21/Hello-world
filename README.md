@@ -1,2 +1,2 @@
 # Hello-world
-Creativity 
+Creativity is of great priority.
